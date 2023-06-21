@@ -1,1 +1,1 @@
-# svarny2
+# stranka1
